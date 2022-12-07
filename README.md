@@ -1,2 +1,1 @@
-# coba-
-Hahahahah
+Klik uang kamu sekarang
